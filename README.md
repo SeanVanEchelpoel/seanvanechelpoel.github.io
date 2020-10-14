@@ -1,0 +1,2 @@
+# seanvanechelpoel.github.io
+I am Sean Van Echelpoel, a visual arts student who currently  lives in a small town nearby Antwerp, Belgium.   Over the past years, I am working towards a synergy between  different mediums such as photography, videography and  graphic design, With a love for depiction through installation.   In addition to my studio, I am frequently involved in modeling,  whereby the influence of fashion often translates into my work.
